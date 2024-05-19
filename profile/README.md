@@ -4,7 +4,8 @@
 
 **Here are some ideas to get you started:**
 
-🙋‍♀️ Education Providing an opportunity to learn Financial Literacy
+2800 postoak blvd Houston texas headquarters with 13 location across the country with offices opening shortly in Europe and Canada 
+Education Providing an opportunity to learn Financial Literacy
 🌈 All I Know Is three things Accounting Tax and Money. I need help with this coding work
 👩‍💻 Useful resources - where can the community find your docs? Is there anything else the community should know?
 🍿 Fun facts - what does your team eat for breakfast?
